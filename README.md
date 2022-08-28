@@ -1,5 +1,5 @@
                                                           
-                                                          BELLA BELT CASE STUDY
+                                                 BELLA BELT CASE STUDY
                                                                           
                                                                           
 
